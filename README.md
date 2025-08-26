@@ -1,4 +1,4 @@
-“Hope” is the thing with feathers -  
+“Hope” is the thing with wings -  
 That perches in the soul -  
 And sings the tune with all the words -  
 And never stops - at all -  
